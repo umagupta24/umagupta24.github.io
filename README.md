@@ -1,5 +1,2 @@
 # umagupta24.github.io
-Akanksha
-Devansh
-Divya
-Sanjay
+Profile for Mrs. UMA GUPTA
